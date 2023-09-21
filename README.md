@@ -1,2 +1,2 @@
 # declaracion
-Declaración para Dana :3
+Declaración :3
